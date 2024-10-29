@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://cityuni-my.sharepoint.com/:b:/g/personal/aram_gholikimilan_city_ac_uk/ERNhnFLsRw1FgJQcW29NSrsB3DLId-aPfJxePpBiF-bTuw?e=TZRogL](https://cityuni-my.sharepoint.com/:b:/g/personal/aram_gholikimilan_city_ac_uk/ETVD0M6143xGulCguQ2yoFQBsK3o4tsKqUUCzkwT-Y0Mkw?e=sdBdiy)
 
-- ⚡ Fun fact **I think people enjoy spending time with me.**
+- ⚡ Fun fact **I like discussions in philosophy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
