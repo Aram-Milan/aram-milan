@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aram.gholikimilan2022@gmail.com**
 
-- 📄 Know about my experiences https://cityuni-my.sharepoint.com/:b:/g/personal/aram_gholikimilan_city_ac_uk/EQT-jdquiXlOieiffmAf8kcBK5--yMXJMnii_OqsnKVLlQ?e=18eAEO
+- 📄 Know about my experiences https://www.linkedin.com/in/aram-gholikimilan/
 
 - ⚡ Fun fact **I like discussions in philosophy**
 
